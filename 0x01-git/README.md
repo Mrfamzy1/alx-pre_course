@@ -1,1 +1,1 @@
-ALX is good, many thanks to thto them
+ALX have the best online course plathform, Thanks ALX
